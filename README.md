@@ -1,2 +1,0 @@
-# Scratch-Projekt
-Scratch Projekt
